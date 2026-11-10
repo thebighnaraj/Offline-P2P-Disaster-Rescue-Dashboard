@@ -1,10 +1,10 @@
 ## 🌐 Visit Website
 
 **Live Demo:**  
-https://kruger-jason-expect-robin.trycloudflare.com
+https://fairy-beyond-reproduction-concentrate.trycloudflare.com
 
 Or click here:  
-[🚀 Visit Website](https://kruger-jason-expect-robin.trycloudflare.com)
+[🚀 Visit Website](https://fairy-beyond-reproduction-concentrate.trycloudflare.com)
 
 # 🚨 RESILINK — Coastal Odisha P2P Disaster Rescue & Hazard Mapping Network
 
